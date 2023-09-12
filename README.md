@@ -1,1 +1,1 @@
-# 11-09-2023-Checkpoint-EQ-6
+Juliana Tamayo Ochoa
